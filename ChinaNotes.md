@@ -7,3 +7,14 @@ From top leadership perspective, there is a tendency to down-weight growth. Grow
 
 Policymakres understand that growth and consumption is relevant, but in the short-term these represent a tradeoff versus continued push in industrial policies. In the 'old days' when the external environment was more friendly, this may be viewed as an opportunity to push for growth and household income. But the current external environment makes that less of a priority, so resources may only start to shift towards these areas when the absence of support starts to bump up against the 'bottom line'. We saw this in the reopening, as well as Sept 2024 policies. It's not about the stock market, or household wealth etc.
 
+
+# To read up
+Exports
+GDP components
+MOnetary policy implementation
+Real estate / banking system
+Augmented fiscal deficit calculation
+Capital flows
+
+CNY/CNH
+CEFTS
